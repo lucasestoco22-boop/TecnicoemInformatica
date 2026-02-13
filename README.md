@@ -1,1 +1,1 @@
-# TecnicjoemInformatica
+# TecnicoemInformatica
